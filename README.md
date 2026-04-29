@@ -1,7 +1,11 @@
 # Book-notes
 Once an eagle
-Quote at the beginning
-He was enlisted, Harvard
+
+Quote at the beginning "once an eagle stricken with a dart said when he saw the fashion of the shaft, with our own feathers not by others hands are we now smitten"
+Forward: Gen John Vessey
+This was a consummate anti-war book. "How do we preserve in peace the virtues necessary to win in war?" -Service fmaily, schools, field training.
+Anton Myrer was enlisted CPL, Harvard
+
 6:00 Equal opportunity school of the nation. Providing upward mobility to the likes of Sam Damon, Myres hero and others (literally a fictional example)
 6:30 Phillip Sheridan the profession of arms was too full of blind chance to be worthy of a first class calling
 General Sam Damon you can’t help what you were born and you may not have much to say about where you die but you can and you should try to pass the days in between as a good man.
