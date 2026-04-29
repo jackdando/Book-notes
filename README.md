@@ -29,7 +29,7 @@ Stories like Captain Townsend and the Bomb just seem like rage bait
 Manila pegboard
 
 18:42 Massingale at West Point stuff 3 Chapperal 7
-The point had been a shock. He had not been prepared fir the casual caluclated humiliations, the nocturnal barbarities. He endured it. Raging silently at the lunatic prattle of responses hed been forced to commit to memory and prattle on demand about the number of lights in Collum hall of the or the number of gallons of water in Lusk resevoir all of them swathed in their preposterous florid verbiage. Lying their biting on his blanket to keep form moainig in fury or despair. Hed hate the women who got him in to this. 
+The point had been a shock. He had not been prepared fir the casual caluclated humiliations, the nocturnal barbarities. He endured it. Raging silently at the lunatic prattle of responses hed been forced to commit to memory and prattle on demand about the number of lights in Collum hall of the or the number of gallons of water in Lusk resevoir all of them swathed in their preposterous florid verbiage. Lying their biting on his blanket to keep form moainig in fury or despair. Hed hate the women who got him in to this... he suppresed every heretical thoguht, every tendecny toward rebellion or dejection or idle dreaming.
 18:51 when are we going to cure you of that stubborn mustang background…You’ve completely failed to identify yourself with the identity of your class
 19:48 3 Chaparral 8 officer calling people property
 20:55 Massingale and his suffragette gf who fell for him even though he’s a mega misogynist 
