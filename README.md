@@ -34,10 +34,13 @@ The point had been a shock. He had not been prepared fir the casual caluclated h
 "No hes can't becasue he hasn't been given the opportuiniy"
 "when are we going to cure you of that roaring stubborn mustang background of yours…You’ve completely failed to identify yourself with the interests of your class."
 
-19:48 3 Chaparral 8 officer calling people property, you give a crisp harsh command you property, the extension of your soul starts forward like a great bristling animal. I reveled in it. 
-20:55 Massingale and his suffragette gf who fell for him even though he’s a mega misogynist 
-21:03 Massingale sex scene , prejac and roleplay 
-21:13 he filed his pet squirrels teeth down and starved it, as a threat
+19:48 3 Chaparral 8 officer calling people property, you give a crisp harsh command you property, the extension of your soul starts forward like a great bristling animal. I reveled in it.
+
+20:55 Massingale and his suffragette gf who fell for him even though he’s a mega misogynist. "Becasue I was marching down the street in the suffragette parades." "Women's rights, what makes you think you deserve any?" "any woman is as good as any man" "Demonstrably false." She had never in all her life met such a compelling man "I bet I can learn to make sauce hollendaise before you learn to drive an automobile. You see and you said any woman is as good as any man." 
+
+
+!21:03 Massingale s scene , prejac and roleplay. He did not make love to her for several evenings, when he did she was shocked by the tempestuous force of it
+21:12 he filed his pet squirrels teeth down and starved it, as a threat. When I was 12 I had a pet squirrel. He was the only real friend I ever had. Then one day he bit me. I cried. I put its head in the vice on my workbench and filed his teeth down to the gums. I watched that squirrel starve to death surrounded by walnuts.
 22:02 3 Chapperal 9 she wanted to be dominated 
 30:25 “as if his ability to get it up”
 30:55 sex scene affair 4 Liana 8
