@@ -34,7 +34,7 @@ The point had been a shock. He had not been prepared fir the casual caluclated h
 "No hes can't becasue he hasn't been given the opportuiniy"
 "when are we going to cure you of that roaring stubborn mustang background of yours…You’ve completely failed to identify yourself with the interests of your class."
 
-19:48 3 Chaparral 8 officer calling people property
+19:48 3 Chaparral 8 officer calling people property, you give a crisp harsh command you property, the extension of your soul starts forward like a great bristling animal. I reveled in it. 
 20:55 Massingale and his suffragette gf who fell for him even though he’s a mega misogynist 
 21:03 Massingale sex scene , prejac and roleplay 
 21:13 he filed his pet squirrels teeth down and starved it, as a threat
