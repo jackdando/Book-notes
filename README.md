@@ -1,4 +1,9 @@
 # Book-notes
+For liberty and the republic Herrera
+Jeremy Black War and the cultural turn American political leaders and the people "have always found it hard to admit that their forces are being used for narrow selfish interests; hence, there is a high degree of rhetoric surrounding their usage."
+
+
+
 Once an eagle
 
 Quote at the beginning "once an eagle stricken with a dart said when he saw the fashion of the shaft, with our own feathers not by others hands are we now smitten"
