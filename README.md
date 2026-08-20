@@ -1,7 +1,7 @@
 # Book-notes
 For liberty and the republic Herrera
 Jeremy Black War and the cultural turn American political leaders and the people "have always found it hard to admit that their forces are being used for narrow selfish interests; hence, there is a high degree of rhetoric surrounding their usage."
-
+John Shy Toward Lexington study of provincial Virginia soldiers inthe seven years war
 
 
 Once an eagle
