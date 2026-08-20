@@ -8,8 +8,11 @@ The voted on who could join and detailed election procedures for NCOs and Os
 ch1f11 volunteer companies made their own bylaws and sometimes made rules against profanity and drinking. Conliffe Soldiers and Civs the matial spirit in america 2nd ed p 215-219, Thomas Vardell "Address, on the presentaiton of a pair of silver pitchers by the moultrie guards 26th July 1844." Edward McCrady Sr. Collections 
 ch1 f 45 Skelton An American Profession of Arms 200-201 electioneering, soldiers writing letters home to be published often under pseudnyms
 John Whitcomb elected multiple times, lawyer, general Massachusetts militia
-
+ch3 f1soldier self governance Fred Anderson A people's army, James Titus The old Dominion at war Society politics and warfare 1991
+f3 Volunteer comapnies had detailed constitutions included election procedures Don Higginbotham George Washington and the American Military tradition 1985
+f29 General Meade "the vicious system of electing" officers "the volunteer system is and always has been a failure."
 Once an eagle
+f30 Private Andrew Hero New Orleans Artillery "unable to state whether the right will be granted to us to elect our own officers or not." the battalion found it "exceedingly mortifying" that their rights might be overridden. instead of having "little squirts from the VMI and perfect strangers comissioned as officers.
 
 Quote at the beginning "once an eagle stricken with a dart said when he saw the fashion of the shaft, with our own feathers not by others hands are we now smitten"
 Forward: Gen John Vessey
