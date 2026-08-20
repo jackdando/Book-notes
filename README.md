@@ -6,7 +6,7 @@ Anderson f23 A peoples army mutiny / refusal to obey orders not so much due to w
 Intro f32 Kenneth McCreedy Palladium of liberty: The american militia system 1815-1861" Mark Pitcavage "An equitable burden: the decline of state militias 1783-1858" militia decline, individual responsibility.
 The voted on who could join and detailed election procedures for NCOs and Os
 ch1f11 volunteer companies made their own bylaws and sometimes made rules against profanity and drinking. Conliffe Soldiers and Civs the matial spirit in america 2nd ed p 215-219, Thomas Vardell "Address, on the presentaiton of a pair of silver pitchers by the moultrie guards 26th July 1844." Edward McCrady Sr. Collections 
-
+ch1 f 45 Skelton An American Profession of Arms 200-201 electioneering, soldiers writing letters home to be published often under pseudnyms
 
 Once an eagle
 
