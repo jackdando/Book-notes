@@ -3,6 +3,8 @@ For liberty and the republic Herrera
 Jeremy Black War and the cultural turn American political leaders and the people "have always found it hard to admit that their forces are being used for narrow selfish interests; hence, there is a high degree of rhetoric surrounding their usage."
 John Shy Toward Lexington study of provincial Virginia soldiers inthe seven years war
 Anderson f23 A peoples army mutiny / refusal to obey orders not so much due to want of discipline but their belief in the "centrality of contract in popular understandings of the legitimate exercise of authority"  Mil officials who failed to live up to contractual obligations food equipment or tenure nullified any expectation of obedience. The right to wtihhold labor when paymasters and commissaries were unable to fulfill duties
+Intro f32 Kenneth McCreedy Palladium of liberty: The american militia system 1815-1861" Mark Pitcavage "An equitable burden: the decline of state militias 1783-1858" militia decline, individual responsibility.
+The voted on who could join and detailed election procedures for NCOs and Os
 
 Once an eagle
 
