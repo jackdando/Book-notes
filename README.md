@@ -24,6 +24,8 @@ f43 One volunteer turned regular wanted the army to reform itself y adopting vol
 f44 Samiel Hamilton Walker of Maryland wrote about antidemocratic and authoritarian nature of military, advocated electin officers. Critiqued justice system.
 f45 petitions-usually commending or attacking leaders who sucked.
 f47 Lieutenants of the Pennsylvania Line petitioned Congress in 1780, 1781 enlisted soldiers mutinied. BG Anthony Wayne was sympathetic. Cited petitions and Higginbotham The war for American Independence Military Attitudes policies and practice 403-406
+f48/f49 other exmaples of petitions
+f51 Not all petitions were heard well. GW got mad at one
 
 once an eagle
 Quote at the beginning "once an eagle stricken with a dart said when he saw the fashion of the shaft, with our own feathers not by others hands are we now smitten"
