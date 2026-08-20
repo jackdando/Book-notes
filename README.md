@@ -16,6 +16,14 @@ f30 Private Andrew Hero New Orleans Artillery "unable to state whether the right
 f32 positive views of soldier self governance
 f34 exmaples of military constitutions leadership selection showed concerns of the times Steven Rosswurm Arm Country and Class The philidelphia milita and the "lower sort" during the american revolution 1987
 f37 many preambles quotes 2nd ammendment lots of examples.
+f38 confederate ones
+f39 wanting to know who the officers were before enlisting
+f40 letter describing election process
+f42 unpopular appointments aroused far stronger emotions than electoral defeats, private Davenport was worried their right to elect was being taken away, the soldiers of his regiment would soon have "no more rights that way than Serfs."
+f43 One volunteer turned regular wanted the army to reform itself y adopting volunteer electing practices. 
+f44 Samiel Hamilton Walker of Maryland wrote about antidemocratic and authoritarian nature of military, advocated electin officers. Critiqued justice system.
+f45 petitions-usually commending or attacking leaders who sucked.
+f47 Lieutenants of the Pennsylvania Line petitioned Congress in 1780, 1781 enlisted soldiers mutinied. BG Anthony Wayne was sympathetic. Cited petitions and Higginbotham The war for American Independence Military Attitudes policies and practice 403-406
 
 once an eagle
 Quote at the beginning "once an eagle stricken with a dart said when he saw the fashion of the shaft, with our own feathers not by others hands are we now smitten"
