@@ -11,9 +11,13 @@ John Whitcomb elected multiple times, lawyer, general Massachusetts militia
 ch3 f1soldier self governance Fred Anderson A people's army, James Titus The old Dominion at war Society politics and warfare 1991
 f3 Volunteer comapnies had detailed constitutions included election procedures Don Higginbotham George Washington and the American Military tradition 1985
 f29 General Meade "the vicious system of electing" officers "the volunteer system is and always has been a failure."
-Once an eagle
-f30 Private Andrew Hero New Orleans Artillery "unable to state whether the right will be granted to us to elect our own officers or not." the battalion found it "exceedingly mortifying" that their rights might be overridden. instead of having "little squirts from the VMI and perfect strangers comissioned as officers.
 
+f30 Private Andrew Hero New Orleans Artillery "unable to state whether the right will be granted to us to elect our own officers or not." the battalion found it "exceedingly mortifying" that their rights might be overridden. instead of having "little squirts from the VMI and perfect strangers comissioned as officers.
+f32 positive views of soldier self governance
+f34 exmaples of military constitutions leadership selection showed concerns of the times Steven Rosswurm Arm Country and Class The philidelphia milita and the "lower sort" during the american revolution 1987
+f37 many preambles quotes 2nd ammendment lots of examples.
+
+once an eagle
 Quote at the beginning "once an eagle stricken with a dart said when he saw the fashion of the shaft, with our own feathers not by others hands are we now smitten"
 Forward: Gen John Vessey
 This was a consummate anti-war book. "How do we preserve in peace the virtues necessary to win in war?" -Service fmaily, schools, field training.
