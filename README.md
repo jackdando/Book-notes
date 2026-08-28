@@ -1,4 +1,21 @@
 # Book-notes
+Thomas Jefferson's Education Alan Taylor
+1779 Bill to educate all white children. Legislators wanted to keep taxes low though
+p3 1785"It is ti them I look, to the rising generation, and not to the one now in power, for these great reformations."
+When challenged for failing to end slaver, Virginians replied that they had acheived something even greater by separating church and state.
+2/5th of virginia was enslaved
+1/3 of men lacked enouogh property to vote
+p16 Peter Jefferson early commander in local militia
+p21 Parsons were paid in tobacco but during droubts it became hard to pay them so the two-penny act was introduced. But vetoed by the king. SO burgesses developed a new constitutional provision that defined the House of Burgesses as fully sovreign in Virginia
+May 1776 Porivcial Congress declared the colony independent from Britain
+p44 the new constitution shifted power from Tidewater to Piedmont while denying proportional representation to the newer and larger counties west of the blue ridge. Did not trust poor whites Westerners in particular to protect the slave system. F3-4
+"that all men are by nature equally free and independent" struck Robert Carter Nicholas as absurd inviting poor whites or slaves to take property and power from their superiors.
+St George Tucker noted how slavery is way worse than their greivances "Should we not have loosed their chains and broken their fetters?"
+The revolution appealed to ambitious commoners by increasing leadership positions for militia officers. f14
+Jefferson to Madison on Patrick Henry "What we have to do I think is devoutly to pray for his death."
+p55 When they could no longer keep Glebes former persecutors Episcopalians now felt persecuted. 
+p56 court was divided over it Episocpalians expected to win but the presiding justice was dead.
+
 For liberty and the republic Herrera
 Jeremy Black War and the cultural turn American political leaders and the people "have always found it hard to admit that their forces are being used for narrow selfish interests; hence, there is a high degree of rhetoric surrounding their usage."
 John Shy Toward Lexington study of provincial Virginia soldiers inthe seven years war
