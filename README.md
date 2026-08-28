@@ -15,6 +15,11 @@ The revolution appealed to ambitious commoners by increasing leadership position
 Jefferson to Madison on Patrick Henry "What we have to do I think is devoutly to pray for his death."
 p55 When they could no longer keep Glebes former persecutors Episcopalians now felt persecuted. 
 p56 court was divided over it Episocpalians expected to win but the presiding justice was dead.
+p59 Jefferson listed the Statute for Religious Freedom on his grave monument omitting being President.
+p60 his neighbors elected him to legislature, he declined "If we are made in some degree for others, yet in a greater degree are we made for ourselves."
+p67 Republican victory in 1800 repealed Alien and Sedition Acts, lowered taxes and radically shrank the military.
+Richmond Junto informal group of lawyers, bankers and judges that blocked federalists from power.
+
 
 For liberty and the republic Herrera
 Jeremy Black War and the cultural turn American political leaders and the people "have always found it hard to admit that their forces are being used for narrow selfish interests; hence, there is a high degree of rhetoric surrounding their usage."
