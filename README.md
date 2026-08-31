@@ -24,6 +24,10 @@ p103 after Jefferson's wife died he didn't remarry rather he took to Hemings, th
 ch 6 p 164 Jefferson worried premature exposure to theology prepared children to submit to arbitrary authority as adults.
 ch 7 p 197 Western virginians neglected. Wanted banks and improved roads and schools. They felt trapped in underdevelopment
 ch 8 p223 Jefferson called Calvinists "gloomy and hypochondriac minds, inhabitants of diseased bodies, disgusted with the present." he denounced presbyterians as bigots bent on destroying freedom and restoring Middle Ages complete with an inquisition. He characterized them as "the most ambitious, the most intolerant and tyrannical of all our sects" and they "dread the advance of sciences as witches do the approach of day light."
+p233 Jefferson argued that the Visitors should never "become suitors to Yale and Harvard for their secondary characters. Have we been laboring then merely to get up another Hampden Sydney or Lexington?" -they needed first rate faculty
+p238 f70 1799 resolutions from VA against alien and sedition acts.
+ch 9 f 18 West point founded to counter Federalist dominance in the army.Superintendent Alden Partridge was weird so SecWar ousted him and hired Sylvanus Thayer.
+p250 students rebelled and Ragland supported. "the monarchial ideas of the acadmys present ruler bent on exercising the most galling tyranny." Ragland said they could "discriminate between the obligations of the American soldier and the tame submission of a Russian peasant." f20
 
 For liberty and the republic Herrera
 Jeremy Black War and the cultural turn American political leaders and the people "have always found it hard to admit that their forces are being used for narrow selfish interests; hence, there is a high degree of rhetoric surrounding their usage."
