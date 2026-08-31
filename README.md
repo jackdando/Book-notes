@@ -19,7 +19,11 @@ p59 Jefferson listed the Statute for Religious Freedom on his grave monument omi
 p60 his neighbors elected him to legislature, he declined "If we are made in some degree for others, yet in a greater degree are we made for ourselves."
 p67 Republican victory in 1800 repealed Alien and Sedition Acts, lowered taxes and radically shrank the military.
 Richmond Junto informal group of lawyers, bankers and judges that blocked federalists from power.
-
+p92 ch3 Trained to assert their masculine honor, young gentlemen balked at Christian meekness as feminine f 66
+p103 after Jefferson's wife died he didn't remarry rather he took to Hemings, the daughter of an enslaved women and Jefferson's father in law, so his wife's half sister. She looked like her.
+ch 6 p 164 Jefferson worried premature exposure to theology prepared children to submit to arbitrary authority as adults.
+ch 7 p 197 Western virginians neglected. Wanted banks and improved roads and schools. They felt trapped in underdevelopment
+ch 8 p223 Jefferson called Calvinists "gloomy and hypochondriac minds, inhabitants of diseased bodies, disgusted with the present." he denounced presbyterians as bigots bent on destroying freedom and restoring Middle Ages complete with an inquisition. He characterized them as "the most ambitious, the most intolerant and tyrannical of all our sects" and they "dread the advance of sciences as witches do the approach of day light."
 
 For liberty and the republic Herrera
 Jeremy Black War and the cultural turn American political leaders and the people "have always found it hard to admit that their forces are being used for narrow selfish interests; hence, there is a high degree of rhetoric surrounding their usage."
