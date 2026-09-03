@@ -3,7 +3,12 @@ The Princeton Guide To Historical Research Zachary Schrag
 p9 History is the study of people and the choices they made. p 11 Historians embrace contingency: the belief that had people made different choices, matters could have turned out differently.
 p13 The task is to balance out the elements of human agency with impersonal forces on the other." Fredrik Logevall
 p20 the goal of the historian is to persuade readers that the argument set forth helps make sense of the choices people made in the past
-
+p56 Statistics in the hand of an angry god Mccormick -using death stats to show providence is arbitrary- but it is socially not theoligcally determined.
+Alan Taylor Liberty Men and the Great Proprietors conflict after American revolution between the gentlemen and small farmers.
+p60 Any event may have multiple causes; the historians job is to point out the most important ones. 
+(Example: The founding military was revolutionairy in its structure relying on volunteers who elected their own officers. This changed in 1916 why? Characters)
+p77 John D'Emilio describes World War II as a "nationwide coming out experience" for gay americans Sexual Politics Sexual communities 2nd ed page 24
+Judith Stein Pivotal decade: how the US traded factories for finance in the seventies.
 
 Thomas Jefferson's Education Alan Taylor
 1779 Bill to educate all white children. Legislators wanted to keep taxes low though
