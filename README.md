@@ -1,4 +1,10 @@
 # Book-notes
+The Princeton Guide To Historical Research Zachary Schrag
+p9 History is the study of people and the choices they made. p 11 Historians embrace contingency: the belief that had people made different choices, matters could have turned out differently.
+p13 The task is to balance out the elements of human agency with impersonal forces on the other." Fredrik Logevall
+p20 the goal of the historian is to persuade readers that the argument set forth helps make sense of the choices people made in the past
+
+
 Thomas Jefferson's Education Alan Taylor
 1779 Bill to educate all white children. Legislators wanted to keep taxes low though
 p3 1785"It is ti them I look, to the rising generation, and not to the one now in power, for these great reformations."
