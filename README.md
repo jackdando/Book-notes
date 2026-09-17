@@ -1,4 +1,7 @@
 # Book-notes
+A sense of honor James Webb
+
+
 The Princeton Guide To Historical Research Zachary Schrag
 p9 History is the study of people and the choices they made. p 11 Historians embrace contingency: the belief that had people made different choices, matters could have turned out differently.
 p13 The task is to balance out the elements of human agency with impersonal forces on the other." Fredrik Logevall
