@@ -13,6 +13,15 @@ THERE ARE 15 DAYS UNTIL WE BEAT ARMY FORTY ONE DAYS UNTIL SPRING LEAVE  114 DAYS
 Fogarty deaded having to deal with officers other than those he wished to emulate.
 Lenahan would literally shudder with pride, when he first came back and watched a noon meal fromation he cried.
 Lenahan's brother wrote him a letter in the hospital warning him to keep a baseball bat beside the bed in case any h* q* navy-type squid corpsman tried to sneak up under his bed in the middle of the night and r* him through his craphole.
+Lenahan was careful no t to go into the barracks at night unannounced because the special instruction sessions for problem plebes again illegal again essential. He thinks under the old rules Dean would have been squared away or run out by now. Maybe Fogarty is just what dean needs."
+Fogarty looked up to Ron Loudenslager who died. He would march his whole company around the parade field an extra time to show they could do more than other companies. It pissed them off so bad, they would intentionally mess up in parades so he couldn't say the extra marching did them any good. Swenson says "He was a case, but the son of a b could lead Sir."
+to lock a grown manaway for his only period of free time all week simply because he had been seen  holding hands with his girlfriend. and yet there were company officers who would eagerly do just that.
+Battaltion commander Pratt ran his company officers like they were plebes. He orders no shaved heads at service selection.
+Thirteen of Lenahans men found sleeping in, going back to bed after reveille. Lenehan doesn't care. It's only sleeping in.
+Fogarty hated academics. He resented having an engineering degree forced down his throat
+And only a masochist or a lunatic would aknowledge love inside a sweatbox.
+it did not seem right that a man should be dead so soon after fianlly seizing back his human existence.
+
 
 Fogarty had a idealized idea of the military and refused to change it when confronted with reality. Which is selfish and indivudalistic. The exact opposite of what the military runs on.
 
