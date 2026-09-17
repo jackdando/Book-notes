@@ -1,6 +1,20 @@
 # Book-notes
 A sense of honor James Webb
-In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battles to preserve a sense of honor
+In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
+*describing a parade You find yourself applauding, feeling, ambodied in it, wishing secretly that you were a part of it.
+representing the cream of America's youth
+It was like a zoo. You were always on display and so much of the world was out of reach.
+No one ever got used to reveille any more than one can learn to accept being whipped.
+Called Fogarty the midnight miler
+Fogarty ruins Deans shoes and makes him stand in a brace hating naval academy for creating and perpetuating such stupidity in the name of discipline or degredation
+Fogarty asks why Dean came here "For the education Sir" Well thats what I hate about you you sorry prick.
+"Oh dean poor dean. You really did it. You hit Mister Fogarty where it hurts. You're supposed to say somethii g about flying jets or driving a ship or leading troops in combat. Really dean."
+THERE ARE 15 DAYS UNTIL WE BEAT ARMY FORTY ONE DAYS UNTIL SPRING LEAVE  114 DAYS UNTIL THE SECOND CLASS RIND DNACE
+Fogarty deaded having to deal with officers other than those he wished to emulate.
+Lenahan would literally shudder with pride, when he first came back and watched a noon meal fromation he cried.
+Lenahan's brother wrote him a letter in the hospital warning him to keep a baseball bat beside the bed in case any h* q* navy-type squid corpsman tried to sneak up under his bed in the middle of the night and r* him through his craphole.
+
+Fogarty had a idealized idea of the military and refused to change it when confronted with reality. Which is selfish and indivudalistic. The exact opposite of what the military runs on.
 
 
 The Princeton Guide To Historical Research Zachary Schrag
