@@ -1,5 +1,6 @@
 # Book-notes
 A sense of honor James Webb
+In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battles to preserve a sense of honor
 
 
 The Princeton Guide To Historical Research Zachary Schrag
