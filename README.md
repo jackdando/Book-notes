@@ -1,4 +1,7 @@
 # Book-notes
+The anxieties of affluence 
+The fortunate man is seldom satisfied with the fact of being fortunate. Beyond this, he needs to know that he ahas a right to his good fortune. He wants to be convinced that he "deserves" it. and above all, that he deserves it in comparison with others...Good fortune thus wants to be "legitimate fortune." -Max Weber
+
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
 *describing a parade You find yourself applauding, feeling, ambodied in it, wishing secretly that you were a part of it.
