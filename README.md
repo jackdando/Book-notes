@@ -1,6 +1,8 @@
 # Book-notes
 The anxieties of affluence 
 The fortunate man is seldom satisfied with the fact of being fortunate. Beyond this, he needs to know that he ahas a right to his good fortune. He wants to be convinced that he "deserves" it. and above all, that he deserves it in comparison with others...Good fortune thus wants to be "legitimate fortune." -Max Weber
+Unlike the elites of the past, they have moral conflicts about having privilige. They struggled with how to be worthy of the privilige in a moral sense. First by identifying as hard workers. Second as prudent consumers. Third by "giving back" and trying not to be "entitled" and anxiety over raising their kids to not be lazy jerks.
+The book challenges two coneptions about wealthy people. 1. that they are always engaged in a struggle for status or distinction. 2. that they are complacent about their privilige. "Ironically, inhabiting privilige in an "unentitled" nirakky worthy way legitimates entitlement.
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
