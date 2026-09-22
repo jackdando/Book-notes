@@ -31,13 +31,13 @@ one of the many Southerners who persisted in believing he was actually secretly 
 The general's reward is not a bigger tent, its command. Napoleon said. Fogarty thought about it.
 "Dea thinks the college protesters are tight. McClinton said "Theyre his comrades in arms right Dean?" Fogarty "I am not believing this. What are they right about?"
 Mrs Pratt stared with obvious envy at the ribbons on Lenahan's jacket.
-"Ted Lenahan,  you've got balls."
+"Ted Lenahan,  you've got balls."  Quite frankly Captain Lenahan, I crave your body."
 "We're under a lot of heat, but we're not going to let them take this place away from us." Admiral Kraft.
 Sports will be your mistress the next four years. the way of dealing with denial. He made love to a punching bag since 1964.
 Dean didn't give blood "You d*ldo" from now on I am the regulations. You are an absolute abortion. And I want you to start camping out. Strip your sheets off your rack and your mattress and sleep on the springs in the nude. He usually slept on his stomach but feared he might castrate himslef. I don't care why they did it to him and his classmates plebe year. That's why the regulations changed.--- Think about how lucky you are. A hell of a lot of men didn't sleep last night. They were in Vietnam getting shot at. Nobody in Vietnam has a chemistry exam this morning sir. Fogarty grabbed dean by the throat and slammed him against the wall
 Ralph didn't go to the war. Is that all right dad? I don't know. You'll have to ask ralph.
 He wanted to be buried on the hillside in arlington, so the gutless wonders in Washington will have to look at his grave every day when they drive to work.
-
+Fogarty "You know how people keep talking abuot how the military makes you a robot, conditions your mind and all, but I've never seen the kind of conditioning that some of my ffriends who went to college come away with. Pain is wrong. People are oppressed. You have the right to dissent dissent dissent.
 
 Fogarty had a idealized idea of the military and refused to change it when confronted with reality. Which is selfish and indivudalistic. The exact opposite of what the military runs on.
 
