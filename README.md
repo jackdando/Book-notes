@@ -65,7 +65,11 @@ Thomas Andrews Killing for Coal: americas deadlist labor war *breakdown of funct
 When working in archives locate the finding aid
 In January 1864, Confederacy general Patrick Cleburne proposed the emancipation and enrollment of negroes into the confederate army. His superiors and the president found this so outrageous they ordered it to be suppressed.
 Critical reading: to seek information beyond what the source was intending to convey. Understand what they are trying to do. Who is the audience?
-
+Jacquelyn Hall Disorderly women: Gender and labor militancy in the appalachian south.
+Historiography- Explain how other scholars have approached the research question in general, explain how other scholars have approached or ignored the specific research question, Explain how your work uses new questions or sources to answer the question.
+Write so the topic sentences summarizes the whole passage and each support the overall thesis
+In storytelling, have characters sing an I want song.
+Jack Temple Kirby Rural Worlds Lost about hoe by 1960 southern farmers became dependent on corporate giants
 
 Thomas Jefferson's Education Alan Taylor
 1779 Bill to educate all white children. Legislators wanted to keep taxes low though
