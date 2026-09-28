@@ -54,6 +54,10 @@ p60 Any event may have multiple causes; the historians job is to point out the m
 (Example: The founding military was revolutionairy in its structure relying on volunteers who elected their own officers. This changed in 1916 why? Characters)
 p77 John D'Emilio describes World War II as a "nationwide coming out experience" for gay americans Sexual Politics Sexual communities 2nd ed page 24
 Judith Stein Pivotal decade: how the US traded factories for finance in the seventies.
+Historiography - a history literature review. Then explain what is new about your approach. Are you telling an untold or neglected story? Using new sources? Presenting new voices or new characters? Combining previoiusly separate historiographies?
+Two books on the GI Bill Beth Bailey Losing the War, Stephen Ortiz The Gi Bill A new deal for veterans.
+Sources: to make their job manageable, historians identify sets of sources that can be found and read quickly.
+
 
 Thomas Jefferson's Education Alan Taylor
 1779 Bill to educate all white children. Legislators wanted to keep taxes low though
