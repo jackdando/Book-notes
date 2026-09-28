@@ -57,6 +57,9 @@ Judith Stein Pivotal decade: how the US traded factories for finance in the seve
 Historiography - a history literature review. Then explain what is new about your approach. Are you telling an untold or neglected story? Using new sources? Presenting new voices or new characters? Combining previoiusly separate historiographies?
 Two books on the GI Bill Beth Bailey Losing the War, Stephen Ortiz The Gi Bill A new deal for veterans.
 Sources: to make their job manageable, historians identify sets of sources that can be found and read quickly.
+James Gallman Receiving Erin's Children: Philidelphia Liverpool and the Irish Famine Migration
+Sheldon Stern The Cuban Missile Crisis in American Memory: Myth vs Reality. Gathers accounts from McGeorge Bundy, SECDEF McNamera, AG Robert Kennedy and compares them to Exec Committee on Natinal security. They tried to dissuaded JFK from the agreement that defused the crisis. After his death, they engaged in manipulation to present themselves in more heroic roles.
+Rely most freely on incidental or contrary to the apparent interest of the source. Use the vividness test, the possibility test (other sources don't disprove) and probability test (fit a pattern described by other documents.)
 
 
 Thomas Jefferson's Education Alan Taylor
