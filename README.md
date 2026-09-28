@@ -63,6 +63,9 @@ Rely most freely on incidental or contrary to the apparent interest of the sourc
 Vermont comission on country life originated as the Eugenics Survey of Vermont used a sociological study to show that people living on land slated to become Shanendoah National Park were "literally the scum of the mountain people." Sara Gregg Managing the mountains
 Thomas Andrews Killing for Coal: americas deadlist labor war *breakdown of functional deliberation process- used as proxy for bad institutions- see how development worked study
 When working in archives locate the finding aid
+In January 1864, Confederacy general Patrick Cleburne proposed the emancipation and enrollment of negroes into the confederate army. His superiors and the president found this so outrageous they ordered it to be suppressed.
+Critical reading: to seek information beyond what the source was intending to convey. Understand what they are trying to do. Who is the audience?
+
 
 Thomas Jefferson's Education Alan Taylor
 1779 Bill to educate all white children. Legislators wanted to keep taxes low though
