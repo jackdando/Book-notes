@@ -60,7 +60,9 @@ Sources: to make their job manageable, historians identify sets of sources that 
 James Gallman Receiving Erin's Children: Philidelphia Liverpool and the Irish Famine Migration
 Sheldon Stern The Cuban Missile Crisis in American Memory: Myth vs Reality. Gathers accounts from McGeorge Bundy, SECDEF McNamera, AG Robert Kennedy and compares them to Exec Committee on Natinal security. They tried to dissuaded JFK from the agreement that defused the crisis. After his death, they engaged in manipulation to present themselves in more heroic roles.
 Rely most freely on incidental or contrary to the apparent interest of the source. Use the vividness test, the possibility test (other sources don't disprove) and probability test (fit a pattern described by other documents.)
-
+Vermont comission on country life originated as the Eugenics Survey of Vermont used a sociological study to show that people living on land slated to become Shanendoah National Park were "literally the scum of the mountain people." Sara Gregg Managing the mountains
+Thomas Andrews Killing for Coal: americas deadlist labor war *breakdown of functional deliberation process- used as proxy for bad institutions- see how development worked study
+When working in archives locate the finding aid
 
 Thomas Jefferson's Education Alan Taylor
 1779 Bill to educate all white children. Legislators wanted to keep taxes low though
