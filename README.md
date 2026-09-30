@@ -7,7 +7,11 @@ The book challenges two coneptions about wealthy people. 1. that they are always
 The Greatest of All Plagues David Lay Williams
 Plutarch Lives where Douglas discovered Lycurgus "for a mere law to give all men equal rights is but useless, If the poor must sacrifice those rights to their debts, and, in the very seats and sanctuaries of equality, the courts of justice, teh offices of the state, and the public discussions, be more than anywhere at the beck and bidding of the rich."
 The similarity between their arguments against inequality- it divides community, pits citizens against each other, undermines democratic legitmcacy and foments revolution. They don't dismiss complains as "envy" but rather that inequality results from vices like greed (pleonexia) injustice selfishness intemperance, and impiety.
-Stands in contrast to contemporary political philosophy called "sufficientarianism" which says that though poverty is a genuine moral problem, concentrated wealth and inequality are morally irrelevant. Tyler Cowen, Steven Pinker, David Brooks. 
+Stands in contrast to contemporary political philosophy called "sufficientarianism" which says that though poverty is a genuine moral problem, concentrated wealth and inequality are morally irrelevant. Tyler Cowen, Steven Pinker, David Brooks.
+The book also opposes people like Milton Friedman and Friedrich Hayek who treated economic egalitarianism as an invention of 20th century liberals.
+It's also outside the West, Confucius the wise ruler "worries not about poverty, but about uneven distribution."
+
+
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
 *describing a parade You find yourself applauding, feeling, ambodied in it, wishing secretly that you were a part of it.
