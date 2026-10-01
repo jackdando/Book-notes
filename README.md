@@ -16,6 +16,7 @@ Solon who set the laws for Athens "always attaches the overall blame for the str
 Sometimes the public baths would be nicer than what the wealthy can afford themselves.
 Cephalus - the fear of hell can be a remedy which only works on the pious / old
 Plato's Athenian Stranger, the primary character of Laws observes that Kleinias' problem- the problem with warrior cultures generally-is his myopic focus on a single virtue-courage.
+"It is impossible that those who become very rich also become good." the stranger.
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
