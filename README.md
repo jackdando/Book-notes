@@ -10,7 +10,10 @@ The similarity between their arguments against inequality- it divides community,
 Stands in contrast to contemporary political philosophy called "sufficientarianism" which says that though poverty is a genuine moral problem, concentrated wealth and inequality are morally irrelevant. Tyler Cowen, Steven Pinker, David Brooks.
 The book also opposes people like Milton Friedman and Friedrich Hayek who treated economic egalitarianism as an invention of 20th century liberals.
 It's also outside the West, Confucius the wise ruler "worries not about poverty, but about uneven distribution."
-
+Solon who set the laws for Athens "always attaches the overall blame for the strife to the rich." when he was asked if he had left Athenians the best laws they could be given, he said it was the best they could receive. He said the above quote. Legal equality is necessary but not sufficient.
+Sometimes the public baths would be nicer than what the wealthy can afford themselves.
+Cephalus - the fear of hell can be a remedy which only works on the pious / old
+Plato's Athenian Stranger, the primary character of Laws observes that Kleinias' problem- the problem with warrior cultures generally-is his myopic focus on a single virtue-courage.
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
