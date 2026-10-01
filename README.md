@@ -1,5 +1,5 @@
 # Book-notes
-To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law,
+To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law, the concept of law, taking rights seriously, law's empire, Democracy and Distrust John Hart Ely, The Nature of Judicial Process, economic analysis of law Posner
 
 The anxieties of affluence 
 The fortunate man is seldom satisfied with the fact of being fortunate. Beyond this, he needs to know that he ahas a right to his good fortune. He wants to be convinced that he "deserves" it. and above all, that he deserves it in comparison with others...Good fortune thus wants to be "legitimate fortune." -Max Weber
