@@ -1,4 +1,6 @@
 # Book-notes
+To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law
+
 The anxieties of affluence 
 The fortunate man is seldom satisfied with the fact of being fortunate. Beyond this, he needs to know that he ahas a right to his good fortune. He wants to be convinced that he "deserves" it. and above all, that he deserves it in comparison with others...Good fortune thus wants to be "legitimate fortune." -Max Weber
 Unlike the elites of the past, they have moral conflicts about having privilige. They struggled with how to be worthy of the privilige in a moral sense. First by identifying as hard workers. Second as prudent consumers. Third by "giving back" and trying not to be "entitled" and anxiety over raising their kids to not be lazy jerks.
