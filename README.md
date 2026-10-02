@@ -17,6 +17,16 @@ Sometimes the public baths would be nicer than what the wealthy can afford thems
 Cephalus - the fear of hell can be a remedy which only works on the pious / old
 Plato's Athenian Stranger, the primary character of Laws observes that Kleinias' problem- the problem with warrior cultures generally-is his myopic focus on a single virtue-courage.
 "It is impossible that those who become very rich also become good." the stranger.
+Chapter two: The New Testament
+Pope Francis tweeted "Inequality is the root of all evil." In Evagelii Gaudium he singles out the "crude and naive trust in the goodness of those weilding economic power.
+Brigands in 47 BCE claimed to be agents of God and plundered the houses of wealthy citizens, sometimes distributing to the poor.
+Sicarii carried daggers, stabbed high priests then dissapeared into the approving croud. Sthey set Ananias' house of fire.
+Ecclesiastes 6:1-2, Matthew 23:23, Luke 4:18-19, James 2:1-7
+Martin Luther called James and epistle of straw. James was killed for exposing corruption.
+Jesus and James both suggest divine sanctions await the rich. Paul makes no such suggestions.
+St Basil of Caesarea called pleonexia as tyranny of the soul.
+De divitis also On Riches 410 CE
+
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
