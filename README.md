@@ -78,7 +78,20 @@ Dean's thoughts on mandatory chapel. It was archaic. it was obsolete,It was fain
 Dean on call with his dad. Dad agreed with Thad. "You don't understand this isnt the goddamned university of masschusetts, this is a tribe. Fogarty will be a hell of an officer. What does Thad know for Christ's sake? He went to MIT." I'm finallly going to be a part of it.
 toothbrush ass incident p224
 Lenahan "I want you to go ask Ralph why he builds bombs if he thinks war is bad." 232 cringe stuff
-
+"I haven;t been hazing you dean. I've been indoctrinating the shit out of you."
+p271 Thad and lenahan confrontation
+p278 Lenahan "Theyre not interested in building character, Dean. Theyre interested in facts. The facts are the regulation has been violated."
+"oh hell Captain I violated them. I may as well get that out up front."
+"No you don't. You don't get anything out front anymore. They're after your ass Mister Fogarty."
+"It would be dishonest not to start there sir"
+"The hell you say? Were dealing with people from the outside now, mister fogarty. They don't play by the same rules."
+"I broke the regs but wheres the harm?"
+"theyre not interested in harm."
+p290 Fogarty quotes regs when it helps him.
+293 Lenahan refusing a "stupid order"
+Lenahan tlaks to superintedent "If we side with Fogarty we may lose the whole plebe system." He gets orders to Vietnam.
+Fogarty finds Thad's classroom "You scalped me, man."
+"So who should wear theseProfessor? He hung his dress blues on Thad's podium. "You decide."
 
 
 The Princeton Guide To Historical Research Zachary Schrag
