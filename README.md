@@ -69,6 +69,8 @@ Fogarty chanted during their run. Dean had to admit secretly yo himself that is 
 p149 bed making description
 p152 then lick it" about the floor
 company of inspection "orgy of exactness" 153
+He felt protective of Fogarty's early morning rages, like some brutalized beneficiary, the weilder of a perverse but nonetheless real pride. "So what I can take it."
+Professor Thad "you don't surrender your contitutional rights when you put on a uniform.
 
 Fogarty had a idealized idea of the military and refused to change it when confronted with reality. Which is selfish and indivudalistic. The exact opposite of what the military runs on.
 
