@@ -74,7 +74,7 @@ Professor Thad "you don't surrender your contitutional rights when you put on a 
 p187 why do you put up with all of this? "Duty honor country, Forty bucks a month, the chance to fly a jet."
 like so many references to children 187
 Fogarty had a idealized idea of the military and refused to change it when confronted with reality. Which is selfish and indivudalistic. The exact opposite of what the military runs on.
-
+Dean's thoughts on mandatory chapel. It was archaic. it was obsolete,It was faintly vulgar. But it was secretly, somethinghe admitted only to himself, a hell of a show.
 
 The Princeton Guide To Historical Research Zachary Schrag
 p9 History is the study of people and the choices they made. p 11 Historians embrace contingency: the belief that had people made different choices, matters could have turned out differently.
