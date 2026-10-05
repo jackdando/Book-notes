@@ -77,7 +77,9 @@ Fogarty had a idealized idea of the military and refused to change it when confr
 Dean's thoughts on mandatory chapel. It was archaic. it was obsolete,It was faintly vulgar. But it was secretly, somethinghe admitted only to himself, a hell of a show.
 Dean on call with his dad. Dad agreed with Thad. "You don't understand this isnt the goddamned university of masschusetts, this is a tribe. Fogarty will be a hell of an officer. What does Thad know for Christ's sake? He went to MIT." I'm finallly going to be a part of it.
 toothbrush ass incident p224
-Lenahan "I want you to go ask Ralph why he builds bombs if he thinks war is bad."
+Lenahan "I want you to go ask Ralph why he builds bombs if he thinks war is bad." 232 cringe stuff
+
+
 
 The Princeton Guide To Historical Research Zachary Schrag
 p9 History is the study of people and the choices they made. p 11 Historians embrace contingency: the belief that had people made different choices, matters could have turned out differently.
