@@ -64,6 +64,11 @@ He wanted to be buried on the hillside in arlington, so the gutless wonders in W
 Fogarty "You know how people keep talking abuot how the military makes you a robot, conditions your mind and all, but I've never seen the kind of conditioning that some of my ffriends who went to college come away with. Pain is wrong. People are oppressed. You have the right to dissent dissent dissent.
 I suppose you'll bet your ass on it. Has him say beat army sir after each spank.
 "you still have great tits angie. He leaned over and kissed them. I breast fed too more on page 133-136
+Fogarty chanted during their run. Dean had to admit secretly yo himself that is was indeed fun.
+"Reville repaed bancroft hall." 145
+p149 bed making description
+p152 then lick it" about the floor
+company of inspection "orgy of exactness" 153
 
 Fogarty had a idealized idea of the military and refused to change it when confronted with reality. Which is selfish and indivudalistic. The exact opposite of what the military runs on.
 
