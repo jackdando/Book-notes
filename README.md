@@ -1,4 +1,30 @@
 # Book-notes
+Duty First Ed Ruggero
+Quotes Robert E lee at beginning. Duty is the sublimest word in our language...
+LT Gen Dan Christman West Point is America's premier leadership school
+If he's right then this book is an attempt to uncover the academy's approach to leader development in and out of the military.
+"Employees are still not inspired."
+There is no clearly articulated leaerning model or theory, they just do what they've been doing.
+The basic ingredient is good people.
+Four key elements: challenge, support, assessment, reflection, freedom to fail.
+During his time in English department "we were there to develop the next generation of military leaders and to teach them to write clearly.
+General William Westmoreland said that the ideal west pointer is a man of action as opposed to a man of thought.
+Michie Stadium chosen by sports illustrated magazine as one of the most beautiful places in the world.
+You have 90 seconds to say your goodbys.
+When he talks the other cadets listen.
+Bugle NOtes (Reef whatever) what are the names of the army mules?
+p29 west point has undergone another period of major change in its attempt to STAY a top-ranked college
+Novel Honor and Duty
+Feb 1998 hundreds of west pointers liked a post by Bo Friesen '83. long story about being in combat "the goal was not harrassment, ridicule or punishment. Its goal was to train the neural netowrk to deal with an overwhleming amount of disjointed information, porcess, catagorize and make decisions." 
+Grads who defend the plebe system never add "and it taught good leadership techniques to upperclass cadets."
+One grad destroyed an enlisted soldiers room after he was caught having dope.
+Cadet Library has rings from Douglas AMcarthur, Omar bradley and dwight eisenhower.
+They get to eat the candy in Beast.
+LTC Dave Brown commander of IBOLC said west pointers had a more difficult time handling freedom than ROTC.
+Ranger school no longer called leadership school "small unit tactics course" because women couldn't go.
+under the old system, uppercalssmen would choose cadets who - in their 19-20 year old opinion- didn't make the grade.
+Beast weekly ten minute call
+
 To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law, the concept of law, taking rights seriously, law's empire, Democracy and Distrust John Hart Ely, The Nature of Judicial Process, economic analysis of law Posner
 
 The anxieties of affluence 
