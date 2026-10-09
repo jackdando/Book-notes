@@ -47,6 +47,14 @@ FOR SAMANTHA PL300 "Its about how West Point turns out so many social retards." 
 pugil stick fight between exchange and woman cadet.
 1919 MacArthur declared every cadet an athlete. "Athletics have gone from a good idea to a religion at West point.
 15% comes from physical performance, 30% military grades, 50% academics, but cadets spend 22% of discretionary time working out. And no one high-fives the cadet who gets the top grade in chemistry.
+p238 Maureen LaBoeuf puts up a slide with bar graphs labeled pushups, sit ups, two mile run. Shows every class from 1981-1999. She uncovers the top which says women.
+Cadet prayer in chapel chapter
+1976, 1951 cheating scandals
+Army Blue last song played at West Point dances We've not much longer here to stay...
+They can choose time, place and who will pin them.
+Tattoos a way to express yourself not limited by WP. (smith has tattoos, going to get the crest on his chest.) Avery wouldn't put a bumper sticker on a bugati
+Recognition ceremony at the end. Older cadets introduce themselves and call the plebes by their first names.
+They are young people whose strongest wish is that big chunks of their life would speed by them. -> the days going from how long to only this many left.
 
 To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law, the concept of law, taking rights seriously, law's empire, Democracy and Distrust John Hart Ely, The Nature of Judicial Process, economic analysis of law Posner
 
