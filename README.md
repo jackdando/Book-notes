@@ -26,7 +26,7 @@ under the old system, uppercalssmen would choose cadets who - in their 19-20 yea
 Beast weekly ten minute call
 Football separation being end of Beast when they leave early.
 The days list ring weekend, chritmas leave, spring leave, greaduation week
-Colonel Adamczyk Brigade TAC "I realized all the wrong things we did to plebes." Stein: " What a bunch of BS, He's always yelling at cadets."
+Colonel Adamczyk Brigade TAC "I realized all the wrong things we did to plebes." Stein: " What a bunch of BS, He's always yelling at cadets." -same one from absolutely americam
 
 
 To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law, the concept of law, taking rights seriously, law's empire, Democracy and Distrust John Hart Ely, The Nature of Judicial Process, economic analysis of law Posner
