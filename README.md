@@ -24,6 +24,10 @@ LTC Dave Brown commander of IBOLC said west pointers had a more difficult time h
 Ranger school no longer called leadership school "small unit tactics course" because women couldn't go.
 under the old system, uppercalssmen would choose cadets who - in their 19-20 year old opinion- didn't make the grade.
 Beast weekly ten minute call
+Football separation being end of Beast when they leave early.
+The days list ring weekend, chritmas leave, spring leave, greaduation week
+Colonel Adamczyk Brigade TAC "I realized all the wrong things we did to plebes." Stein: " What a bunch of BS, He's always yelling at cadets."
+
 
 To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law, the concept of law, taking rights seriously, law's empire, Democracy and Distrust John Hart Ely, The Nature of Judicial Process, economic analysis of law Posner
 
