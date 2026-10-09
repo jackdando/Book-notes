@@ -45,7 +45,8 @@ Football gets the most attention at West Point---many feel too much attention. I
 Eat dinner in Holleder Center.
 FOR SAMANTHA PL300 "Its about how West Point turns out so many social retards." ALSO page 181 about single TAC
 pugil stick fight between exchange and woman cadet.
-
+1919 MacArthur declared every cadet an athlete. "Athletics have gone from a good idea to a religion at West point.
+15% comes from physical performance, 30% military grades, 50% academics, but cadets spend 22% of discretionary time working out. And no one high-fives the cadet who gets the top grade in chemistry.
 
 To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law, the concept of law, taking rights seriously, law's empire, Democracy and Distrust John Hart Ely, The Nature of Judicial Process, economic analysis of law Posner
 
