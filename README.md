@@ -28,6 +28,24 @@ Football separation being end of Beast when they leave early.
 The days list ring weekend, chritmas leave, spring leave, greaduation week
 Colonel Adamczyk Brigade TAC "I realized all the wrong things we did to plebes." Stein: " What a bunch of BS, He's always yelling at cadets." -same one from absolutely americam
 an obelisk in the cemetary for George Custer, a football shaped stone for Army Coach Red Blaik.
+p129 describing eating
+"I definitely think they are more conservative than some of the enlisted soldiers they will encounter in the army."
+During parade season, instrmurals are every other day, other afternoons are D&C practice.
+Alving Gymnasium has upon the fields of friendly strife
+football pep rally dinnersmandatory thursday night dinner during football season.
+Players excused from lunch formation so they can eat quickly and do some meetings before afternoon classes. Double portions. They eat heads down, little conversation. not harrassed like other cadets, table duties
+Jett is middle of the class, playing isolates him from the rest of the corps.
+four and a half hours in class, three hours in academics.
+football complex has things like "the more you sweat in peace the less you bleed in war."
+"Tomorrows battle is won during today's practice."
+"Success is not an accident, it's planned."
+4:20 pm on the field for warm ups. Places named for cadets KIA p150
+over 180 cadets including practice plebes
+Football gets the most attention at West Point---many feel too much attention. It also generates revenue that supports the rest of the varsity sports program. Football is the national spectacle, the perfect mix of violence and glory and sex for our society." p151
+Eat dinner in Holleder Center.
+FOR SAMANTHA PL300 "Its about how West Point turns out so many social retards." ALSO page 181 about single TAC
+pugil stick fight between exchange and woman cadet.
+
 
 To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law, the concept of law, taking rights seriously, law's empire, Democracy and Distrust John Hart Ely, The Nature of Judicial Process, economic analysis of law Posner
 
