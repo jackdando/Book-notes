@@ -62,6 +62,7 @@ The anxieties of affluence
 The fortunate man is seldom satisfied with the fact of being fortunate. Beyond this, he needs to know that he ahas a right to his good fortune. He wants to be convinced that he "deserves" it. and above all, that he deserves it in comparison with others...Good fortune thus wants to be "legitimate fortune." -Max Weber
 Unlike the elites of the past, they have moral conflicts about having privilige. They struggled with how to be worthy of the privilige in a moral sense. First by identifying as hard workers. Second as prudent consumers. Third by "giving back" and trying not to be "entitled" and anxiety over raising their kids to not be lazy jerks.
 The book challenges two coneptions about wealthy people. 1. that they are always engaged in a struggle for status or distinction. 2. that they are complacent about their privilige. "Ironically, inhabiting privilige in an "unentitled" nirakky worthy way legitimates entitlement.
+lady inherited $9 million “I guess I would say. I used to say I was gonna be a revolutionary, and then I had that first massage”
 
 The Greatest of All Plagues David Lay Williams
 Plutarch Lives where Douglas discovered Lycurgus "for a mere law to give all men equal rights is but useless, If the poor must sacrifice those rights to their debts, and, in the very seats and sanctuaries of equality, the courts of justice, teh offices of the state, and the public discussions, be more than anywhere at the beck and bidding of the rich."
