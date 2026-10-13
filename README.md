@@ -88,7 +88,16 @@ Martin Luther called James and epistle of straw. James was killed for exposing c
 Jesus and James both suggest divine sanctions await the rich. Paul makes no such suggestions.
 St Basil of Caesarea called pleonexia as tyranny of the soul.
 De divitis also On Riches 410 CE
-
+Chapter 3- Thomas Hobbes
+The real earnings of a worker born in 1580 (8 years before Hobbes) would never exceed half of what his great grandfather enjoyed.
+If servants wanted to work elsewhere they had to purchase a ticket of release,or subject to imprisonment
+Hobbes theory begins from a state of nature- he thinks civil laws must correspond to "natural law" most importatnt is to seek peace. which also means laws of justice, gratitutde, pardon, complaisance and equity.
+Men lacking complaisance take more than they need for themselves "will be to blame for the war which breaks out."
+they escape punishment by corrupting public justice and obtaining pardons. Presume laws do not bind them as they do the "poor, obscure and simple."
+"Nothing is more proverbial than that Laws are like Spiders webs, only to hold the small flies."
+The "haughty" those who think they know better than God, must be tamed by a power they cannot resist that terrorizes them into submission. the Leviathan.
+The proud and arrogant judge a state to be badly governed which is not governed as they themselves wish."
+Hobbes shows that you can be concerned about concentrated wealth without it being a block to a virtuous or godly life.
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
