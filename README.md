@@ -98,6 +98,9 @@ they escape punishment by corrupting public justice and obtaining pardons. Presu
 The "haughty" those who think they know better than God, must be tamed by a power they cannot resist that terrorizes them into submission. the Leviathan.
 The proud and arrogant judge a state to be badly governed which is not governed as they themselves wish."
 Hobbes shows that you can be concerned about concentrated wealth without it being a block to a virtuous or godly life.
+Chapter 4: Jean-Jacques Rousseau
+identifies inequality as the proximate cause of illegitimate government. Usurpations of the rich, banditry of the poor,gives way to war.
+Refers to Bernard Mandeville Fable of the Bees: Private Vices Public Benefit- argues promoting public good requires free rein to the human tendency to sin including avarice, luxury, pride, envy, vanity and opulence. If we compare the porrest today to the richest of earlier generations, the rich look destitute.
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
