@@ -101,6 +101,7 @@ Hobbes shows that you can be concerned about concentrated wealth without it bein
 Chapter 4: Jean-Jacques Rousseau
 identifies inequality as the proximate cause of illegitimate government. Usurpations of the rich, banditry of the poor,gives way to war.
 Refers to Bernard Mandeville Fable of the Bees: Private Vices Public Benefit- argues promoting public good requires free rein to the human tendency to sin including avarice, luxury, pride, envy, vanity and opulence. If we compare the porrest today to the richest of earlier generations, the rich look destitute.
+Rousseau observes the rich find a special pleasure in domination. The ability to control others is the ultimate mark of status "they thought only of enslaving their neighbors; like ravenous wolves which once they have tasted human flesh scorn all other food and from then on want to devour only men.
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
