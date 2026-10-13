@@ -102,6 +102,9 @@ Chapter 4: Jean-Jacques Rousseau
 identifies inequality as the proximate cause of illegitimate government. Usurpations of the rich, banditry of the poor,gives way to war.
 Refers to Bernard Mandeville Fable of the Bees: Private Vices Public Benefit- argues promoting public good requires free rein to the human tendency to sin including avarice, luxury, pride, envy, vanity and opulence. If we compare the porrest today to the richest of earlier generations, the rich look destitute.
 Rousseau observes the rich find a special pleasure in domination. The ability to control others is the ultimate mark of status "they thought only of enslaving their neighbors; like ravenous wolves which once they have tasted human flesh scorn all other food and from then on want to devour only men.
+Becoming wealthy requires years of hardening depriving them "of the will to do good while giving them the power to do it." adopting values that rationalize their own opulence and the suffering of the poor."
+The rich man must ensure petty crimes are scandalized while his own usurpations are celebrated as triumphs." and find himself surrounded by servants who will "Serve you at a great price with disguised manure." He will be surrounded by the "flattery of scoundrels" but no one in the end admires him.
+To the extent that they retain a conscience they will be tormented by pangs of remorse.
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
