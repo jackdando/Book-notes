@@ -55,6 +55,10 @@ They can choose time, place and who will pin them.
 Tattoos a way to express yourself not limited by WP. (smith has tattoos, going to get the crest on his chest.) Avery wouldn't put a bumper sticker on a bugati
 Recognition ceremony at the end. Older cadets introduce themselves and call the plebes by their first names.
 They are young people whose strongest wish is that big chunks of their life would speed by them. -> the days going from how long to only this many left.
+He recites opening paragraphs of Douglas MacAthur's 1962 speech to the Corps of Cadets. THis address gets a lot of play at west point. Its part boosterism, part historical reminder part cultural manifesto. It is an icon, as familiar to West Pointers as the Lords Prayer is to Christians. They are required to remember parts of it.
+They develop an elitist mindset over college peers who have it easier.
+"Being a junior officer isn't intellectually challenging. You don't have to be an Alvin Einstein."
+There's too much "due process"
 
 To read: the federalist papers, commentaries blackstone, Wendell Holmes the common law, second treatise on government, the spirit of the laws, leviathan, Plato the laws, The Oresteia (Aeschylus) & Antigone (Sophocles), watch the trial, read selections of blackstone and plato, "The Path of the Law" by Oliver Wendell Holmes Jr., thomas aquinas treatise on law, the concept of law, taking rights seriously, law's empire, Democracy and Distrust John Hart Ely, The Nature of Judicial Process, economic analysis of law Posner
 
