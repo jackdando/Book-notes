@@ -105,6 +105,29 @@ Rousseau observes the rich find a special pleasure in domination. The ability to
 Becoming wealthy requires years of hardening depriving them "of the will to do good while giving them the power to do it." adopting values that rationalize their own opulence and the suffering of the poor."
 The rich man must ensure petty crimes are scandalized while his own usurpations are celebrated as triumphs." and find himself surrounded by servants who will "Serve you at a great price with disguised manure." He will be surrounded by the "flattery of scoundrels" but no one in the end admires him.
 To the extent that they retain a conscience they will be tormented by pangs of remorse.
+the general will must "issue from all in order to apply to all"
+"They enjoy only to the extent others are deprived of them."
+all just republics must pursue "strict integrity to render justice to all and above all protect the poor against the tyranny of the rich."
+they use laws to give "the weak new fetters and the rich new forces."
+Rousseau studies not only how inequality comes about but also how it is legitimated through the social process. He is the last "zero-sum economic philospher. "How is it possible to become wealthy wihtout contributing to the impoverishing of someone else?"
+Chpater Five: Adam Smith
+His underlying principle is concord or mutual sympathy
+self interest can be "absurd self love" defined "that other people may be sacrificed at any time to his conveniency or humor."
+Endeavors to bribe you into a good opinion of him.
+Market is primary solution to problems of poverty, second solution an appeal to virtue, education for the poor, justice and the law
+Lectures on Jurisprudence "Laws and government may thus be considered...in every case as a combination of the rich to oppress the poor, and preserve to themselves the inequality of the goods whcih would otherwise be soon destroyed by the attacks of the poor." also "Civil governmnet, so far as it is instituted for the security of property, is in reality instituted for the defense of the rich against the poor."
+"the difference of natural talents in different men is, in reality, muc hless than we are aware of...difference arises from habit, custom and education."
+Chapter 6: John stuart mill
+self described "Radical and democrat"
+not against political inequality- thought educated citizens should have more say
+British inequality 1900 top 1% owned 70%, top 10% owned 92% of all property until WW1.
+it is essential that different persons should be allowed to lead differnt lives.
+Mill denies that selfishness is natural, we have natural social feelings and a fundamental desire to be in unity with our fellow creatures. "Society between equals can only exist on the understanding that the interests of all are to be regarded equally."
+"No longer enslaved or made dependent by force of law, the great majority are so by force of poverty; they are still chained to a place, to an occupation, and to conformity to the will of the employer.
+Outlines what he considers to be legitimate concerns of socialist Victor Prosper Considerant competition between food insustry resulted in "adulterated foods" soap and sawdust
+He compares the rich to spoiled children "A spoiled child is always dissatisfied. the more that is bestowed, the more it is indignant that anything should be withheld."
+Finding themselves worshipped by others, they become worshippers of themselves entitled to be couned at a hundred times the value of other people." in considerations
+"a system of institutions that does not make the scale turn in favor of equality is essentially bad government."
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
