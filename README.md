@@ -153,6 +153,10 @@ No amount of growth changes the antagonism.
 In Possibility he points to example of US and UK for potential of nonviolent change. Enfranchisement and ending slavery
 But the wealthy are prepared to use violence whenever they feel their property is threatened. Use it routinely to maintain society.
 Conclusion
+The book written to combat view that poverty, not inequality the Sufficientarianism of Steven Pinker and David Brooks believe in
+they ignore the impact on the poor and the rich, it corrupts their soul, they come to believe in their natural superiority, immunity to the law
+the most common theme was how it divides communities
+Deaton "eeconomics origins were concerned with broad human condition, today, mostly efficiency."
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
