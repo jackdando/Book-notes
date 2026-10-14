@@ -141,6 +141,18 @@ Quotes about pottery coniditions, half of all deaths attributed to working condi
 Quoting medical health officer "the average death of the Manchester upper class was 38 years, while the average death of the laboring class was 17, double the lifespan.
 the solution is not higher wages which amounts to a little more than "a better slave salary."
 Quotes Rev Montagu Valpy about children 9/10 woken up at 2,3,4 am worked for subsistence until 10,11,12 at night. their limbs wearing away. 15 hour workdays not uncommon 72 hour workweeks.
+Child mortality rose dramatically during his lifetime, due to employment of mothers out of the home neglect malnourishment and dosing with opiates.
+Greed is unnatural, didn't exist systemically in feudalism.
+"human nature is modified in each epoch." pleonexia is the animating force of capitalism certain objects money, power and public esteem- wealth is what they are all reduced to Rousseau
+the psychic cost of pleonexia in capitalist economies, one is always on the brink of economic ruin even when occupying the top.
+The bourgeoisie is owerless to resist surrounding economic forces that compel him to reduce wages to inhumane levels.
+the workers lose a source of income when a common is taken away, systematic theft of communal property.
+Marx calls back to Lazarus calls the Lazarusschichte are the imporverished workers and reserve armies of capitalism. Theologian N. T. Wright what the rich man wants most is to "keep the poor, ragged brother or neighbor out of sight and out of mind."
+Chapter 2 of Capital Bloody Legislation against the Expropriated. henry VIII hanged 72000 vagabonds, Edward VI poeple who refused to work forced to become slaves of those who called out the idlers.
+No amount of growth changes the antagonism.
+In Possibility he points to example of US and UK for potential of nonviolent change. Enfranchisement and ending slavery
+But the wealthy are prepared to use violence whenever they feel their property is threatened. Use it routinely to maintain society.
+Conclusion
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
