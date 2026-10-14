@@ -140,6 +140,7 @@ origins of inequality, marketplace where small capitalists are devoured, lower m
 Quotes about pottery coniditions, half of all deaths attributed to working conditions, food and medicine are adulterated led to 1870s average height of 11-12 year olf boys in upper classes to be five iches taller than working class boys.
 Quoting medical health officer "the average death of the Manchester upper class was 38 years, while the average death of the laboring class was 17, double the lifespan.
 the solution is not higher wages which amounts to a little more than "a better slave salary."
+Quotes Rev Montagu Valpy about children 9/10 woken up at 2,3,4 am worked for subsistence until 10,11,12 at night. their limbs wearing away. 15 hour workdays not uncommon 72 hour workweeks.
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
