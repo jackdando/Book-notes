@@ -128,6 +128,18 @@ Outlines what he considers to be legitimate concerns of socialist Victor Prosper
 He compares the rich to spoiled children "A spoiled child is always dissatisfied. the more that is bestowed, the more it is indignant that anything should be withheld."
 Finding themselves worshipped by others, they become worshippers of themselves entitled to be couned at a hundred times the value of other people." in considerations
 "a system of institutions that does not make the scale turn in favor of equality is essentially bad government."
+cannot be solved through individual works of charity
+His solutions- representative government, estate tax reform "there is no injustice in taxing persons who have not aquired what they have by their own exertions."
+Society is hindered rather than advanced by such accumulations of wealth
+worker cooperatives but they are innefficient, profit sharing
+Chapter 7: Karl Marx 
+workers do not want equality so much as goods of freedom and reciprocity"
+Napoleonic code abolished aristocratic privliges.
+Immanuel Kant separates legal "bourgeois" equality from economic inequality
+origins of inequality, marketplace where small capitalists are devoured, lower middle class destroyed by industrial revolution "everything therefore depends on making hunger permanent among the working class."
+Quotes about pottery coniditions, half of all deaths attributed to working conditions, food and medicine are adulterated led to 1870s average height of 11-12 year olf boys in upper classes to be five iches taller than working class boys.
+Quoting medical health officer "the average death of the Manchester upper class was 38 years, while the average death of the laboring class was 17, double the lifespan.
+the solution is not higher wages which amounts to a little more than "a better slave salary."
 
 A sense of honor James Webb
 In Vietnam, their friends were dying At home their country was torn by strife. And at annapolis, they battled to preserve a sense of honor
