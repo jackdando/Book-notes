@@ -14,7 +14,50 @@ between 1789 and 1815 tarriffs prvided 90% of total revenue
 levied direct property tax in 1798 to fund naval buildup, taxed expensive houses at higher rates.
 Thomas Jefferson vowed to roll back all internal taxes, but federalists had established the right to impose them. After a decade of low taxes and spending the nation was not ready for war.
 Between 1789 and 1801 army grew from 840 to 5400 men
-Anti federalist Albert Gallatin helped lead whiskey rebellion and narrowly escapred prosecution. Jefferson made him treasury secretary, he planned to fund 1812 through loans. Several excise taxes aimed at rich like gold, watches and expensive furniture. War of 1812 left no lasting mark.
+Anti federalist Albert Gallatin helped lead whiskey rebellion and narrowly escapred prosecution. Jefferson made him treasury secretary, he planned to fund 1812 through loans. Several excise taxes aimed at rich like gold, watches and expensive furniture. War of 1812 left no lasting mark
+Civil war ended with a broad array of internal taxes and nations first income tax
+Confederacy was fearful of centralized power so did not do income tax, relied on tarriffs which suffered from blockade, they just printed money leading to hyperinflation
+Railroad company in georgia had its iron taken and so stopped building new tracks until the war was over. They also forced bought corn / produce cheap so at the end only 1/50th of the land in the best corn district in georgia had been planted with corn.
+Confederate soldiers would desert because the rich got exemptions. Turned mountain counties initia lenthusiasm into hostility.
+Senator Garrett Davis of Kentucky "They do not send their sons there as a general rule inless the sons go with epaulets upon their shoulders.
+pensions rose to over $34 illion in 1871 more than the enite amount spent on the war department. Pensions became first wide scale progressive federal social welfare program.
+The civil war legitimized the income tax and the inheiritance tax.
+WW1- only two percent of americans were originally subject to the income tax
+in 1916, income taxes were doubled, estate tax levied (50% increase in 1917), munitions tax adopted
+draft used to justify taxing the wealthy.
+1917 tax raised top income tax rate to 50%, excise taxes, stamp taxes, postal rates, excess profits tax.74% of new taxes were focused on the wealthy, another 13% on luxurious or harmful consumption.
+Excess profits tax not repealed after war because gov needed money to replace lost money from banning alcohol.
+Gallup poll 1944 "Do you regard the income tax which you will have to pay this year as fair?" 90% said yes
+Personal income tax went mainstream in ww2. Marginal rates peaked at 94%. Corporate income tax, special levy on excess profits. Corporate taxes provided 30% of wartime revenue.
+Roosevelt vetoed tax bill of 1943 "not a tax bill, but a tax relief bill providing relief not for the needy but for the greedy."
+"Idont want to see a single war millionairecreated in the US as a result of this world disaster."
+Democratic senator Rush Holt of WV "It will be found that these patriots are willing to conscript boys, but when we start talking about drafting wealth, what does the New York Times say? It says that we should go slowly on excess profits taxes, that we should go slowly on excess profits taxes, that we should go slowly on drafting wealth, but full speed ahead on drafting boys."
+On December 5th, 1941, Senator Walter George chair of the senate finance comittee "federal t axes have now reached 'near maximum' levels and cannot be increased much more without weakening the whole economy."
+Wage witholding made after Pearl Harbor, Congress wanted national sales tax which Roosevelt opposed.
+Irving Berlin song "I paid my income tax today" Rockefeller helped build them, so did I.
+Korea and Vietnam-
+Truman raised taxes quickly on indiviudals, businesses, and excess profits, closest we ever got to pay as you go
+Johnson refused to seek new taxes for war effort.
+Mid march 1951, Truman decided to pursue peace with the Chinese, General MacArthur balked, said he was prepared to invade China.
+Government ran a surplus during Korea
+Vietnam war was preceded by at the time largest tax cut in American history. Dems controlled both chambers and the presidency.
+Lesson learned- you must strike while the iron is hot to raise taxes
+2000 budget surplus over 2.4% of GDP
+Bush first cut Economic Growth and Tax Relief Reconciliation Act 2001 EGTRRA
+Jobs and Growth Tax Relief Rconciliation Act JGTRRA
+77% of respondents supported military action against those responsible even if US forces might suffer thousands of casualties. 92% beleived it would be long and difficult
+Went from 128B surplus in 2001 to 158B deficit by 2002
+Virginian-Pilot called out 2004 tax cut as fighting the war on a credit card
+2003 tax cut eliminated corporate dividend tax, reducing individual income tax, 50% would receive tax cuts under $100 while tje top 1% would save $25000
+John McCain and Lincoln Chafee both refused to support any tax cuts during time of war. McCain "Bush's tax breaks for the walthy were far and away from scrifice."
+Bush said it was an absurd notion that you needed taxes to pay for it.
+Biden proposed a bill to raise taxes on the wealthy to pay for the war.
+Sne Kerry "the president has demanded most of this sacrifice from the men and women in uniform.
+Bush aslo passed medicare prescription drug plan estimating cost at $00B over ten years, unfunded. They knew it was low. Threatened Medicare's chief actuary Richard Foster who said it was $600B, ended up costing $1.2 trillion 2006-2015
+Senator Joseph Lieberman "were not asking a sacrifice of anybody but our military."
+2007 Obey, McGovern and Murtha tax bill "there is no sense of shared sacrifice. The only families being asked to sacrifice are military families and they are being asked to sacrifice again and again. Meanwhile, even the most fortunate of the rest of us are being asked to make no sacrifice whatsoever."
+House Speaker Nancy Pelosi and Sneate Majority Leader Steny Hoyer both said they would not back it instead doing their own tax relief.
+So why no taxes in GWOT? No fear of inflation. No draft so no compelling moral argument. Perhaps arguments for "shared sacrifice" should carry as much political weight when the country's military efforts are carried out by professional volunteers as when ordinary citizens are drafted.
 
 Duty First Ed Ruggero
 Quotes Robert E lee at beginning. Duty is the sublimest word in our language...
