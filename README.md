@@ -13,6 +13,23 @@ many grew up entirely on sport sex. A constant diet of sport sex that insists on
 In the societal model, observed biological sex, gender self identity, internal sensibility, and expressed sensibility must be alligned.
 "I realized a long time ago that I had only one really improtant thing to do in life. If I accomplished nothing else, I would figure out how to be myself."
 The struggle offers a real, fully human life. *gay people are forced into the struggle, so many who fit into society don't notice, is that fine?
+2013 Gariel beaten to death by mother. tortured more severely than many prisoners of war.
+Reagan did nothing while 90,000 died.
+*sex to overcome shame is not bad IMO
+me not dating because I'm leaving -> Ben "I don't think that's a good excuse."
+HIV is foreign to young men, they give it relatively little thought, but it is endemic.
+Young people in their twenties are sometimes reluctant to acknowlge the relevance of childhood and adolescent experience in their developing adult lives. We are not culpable for our early life histories and not weak for being affected by them
+We reengage with early developmental challenges in an effort to resolve current challenges.
+A majority of young men use the apps to address isolation and a lack on intimacy. Purely objectified sex is not a probable path to emotional connections with others. Intimacy is a human birtright.
+For young gay people, acceptance and support of the family is the most developmentally significant.
+Rigidity is not resilince.
+During traumatic events, numbing is often helpful, when sustained disconnects from feelings, fragments internal life and obstructs personal connections, it can readily outlive its usefulness.
+Recovery for the survivor, connecting in healing relationships, finding a position of safety from threat, actively remembering and talking about the trauma, greiving the losses and rebuilding a life. Acknowledge that trauma has occurred.
+Isolation is now endemic in gay communities. lost basic capacities for trust autonomy initiative competence identity and intimacy.
+Talking through and working through grief.
+"I think I'm afraid of needing him, that that's what I've been afraid of all my life."
+Falling in love is a risk.
+We don't change just becasue we understand something, we change when we put our understanding to use.
 
 War and Taxes Steven Bank
 LA Times article "Absence of Sacrifice at home spurs guilt feeling over war." GOP senator in favor of tax increase
