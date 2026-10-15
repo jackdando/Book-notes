@@ -30,6 +30,14 @@ Talking through and working through grief.
 "I think I'm afraid of needing him, that that's what I've been afraid of all my life."
 Falling in love is a risk.
 We don't change just becasue we understand something, we change when we put our understanding to use.
+The goal of recounting the trauma story is integration not exorcism.
+For the heterosexual who wonders which man in the gay couple is the wife. the useful answer is probably "you are ignorant of the emotional complexity and potential richness of human life. We are trying to dig out from under your mess and find and be outselves.
+"We just want you to be happy" self fulfilling prophecies. They use the result of stigmatization to demonstrate gay relationships don't work.
+Its that I've never had a relationship and I just turned 38.
+The problem is no adults or very very few adults experience truly unconditional love from another adult.
+Matthias was gay and he was a hero for simply being and living as himself.
+Hank involved with Lambda legal, we need to fight, not pander
+in their stuggle to be themselves they took no prisoners
 
 War and Taxes Steven Bank
 LA Times article "Absence of Sacrifice at home spurs guilt feeling over war." GOP senator in favor of tax increase
