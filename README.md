@@ -1,4 +1,21 @@
 # Book-notes
+War and Taxes Steven Bank
+LA Times article "Absence of Sacrifice at home spurs guilt feeling over war." GOP senator in favor of tax increase
+Bush time lowered and flattened individual income tax, repealed estate tax, eased burden on capital gains and dividends, reduced marriage penalty,added new deductions, credits. Turend projected $5.6 trillion dollar surplus into $2.7 trillion deficit.
+America's tax system can be written largely as a history of America's wars.
+Wartime dividend!
+war led to tax reform for two reasons: necessity and a political atmosphere of shared sacrifice.
+Revnue act of 1942 subjected millions of new taxpayers to the income tax tunring the class tax into a mass tax.
+Republicans balked at taxes for war of 1812 "Madison's war." under the belief it would be quick and painless.
+Chapter 1 Revolutionary War
+Congress originally tried to pay for Revolutionary war through loans, gave soldiers loan instruments instead of pay
+Post revolutionary war, army was only 625 men. Britain refused to abandon 9 forts on the border. Spain closed the mississippi river, barbary pirates
+between 1789 and 1815 tarriffs prvided 90% of total revenue
+levied direct property tax in 1798 to fund naval buildup, taxed expensive houses at higher rates.
+Thomas Jefferson vowed to roll back all internal taxes, but federalists had established the right to impose them. After a decade of low taxes and spending the nation was not ready for war.
+Between 1789 and 1801 army grew from 840 to 5400 men
+Anti federalist Albert Gallatin helped lead whiskey rebellion and narrowly escapred prosecution. Jefferson made him treasury secretary, he planned to fund 1812 through loans. Several excise taxes aimed at rich like gold, watches and expensive furniture. War of 1812 left no lasting mark.
+
 Duty First Ed Ruggero
 Quotes Robert E lee at beginning. Duty is the sublimest word in our language...
 LT Gen Dan Christman West Point is America's premier leadership school
