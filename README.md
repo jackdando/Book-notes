@@ -1,4 +1,15 @@
 # Book-notes
+Uneasy Street anxieities of affluence
+Feeling conflicted about her wealth made her feel better about it
+a norm of silence prevailed (didn't like how brother called it her infinity checkbook, flying private "This is not something that you talk about. Because this is not an experience that most people you know will have."
+the importance of treating people well
+Very few gave more than 5% of their income, mostly to their children's schools or alma maters, mostly giving to curb most pernicious effects of capitalism and curbing alternatives
+They see taxes as giving back
+tension between partners made them unable to see their own privilige
+Parents use constraint and exposure. As long as their kids don't act or feel entitled the children can remain legitimately entitled to resources. Class assumption that their children should have access to others lives even when they would not want those others to have access to their own lives.
+One mother encouraged her son to stay in contact with public school friends even after she enrolled him in private school to preserve his class advantages. Attempt to construct meaningful community as an attempt to be "normal"
+the fantasy is that kids can have material and experiential comforts and at the same time understand that it is possible for other people at least to live without them.
+Parents spend alot on "pathway consumption" that ensures advantaged futures.
 
 Duty First Ed Ruggero
 Quotes Robert E lee at beginning. Duty is the sublimest word in our language...
