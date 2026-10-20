@@ -10,6 +10,10 @@ Parents use constraint and exposure. As long as their kids don't act or feel ent
 One mother encouraged her son to stay in contact with public school friends even after she enrolled him in private school to preserve his class advantages. Attempt to construct meaningful community as an attempt to be "normal"
 the fantasy is that kids can have material and experiential comforts and at the same time understand that it is possible for other people at least to live without them.
 Parents spend alot on "pathway consumption" that ensures advantaged futures.
+They try to see themselves as good people. They work hard. Live below their means. Self indulgence are treats they could live without. They give back. They don't brag or show off. They treat people kindly but maintain an internal awareness of and appreciation for their advantages. They raise children who won't act entitled.
+To say that someone is inhabiting privilige incorrectly is also to say it is possible to inabit it correctly
+They advocate for policies that in the long term create a system that spawn anxieties among the wealthy themselves.
+Not only do poor people feel that their position is their own fault, the rich feel like structural critiques are personal judgements. WHy the are so offended by Obama or Mamdani
 
 Duty First Ed Ruggero
 Quotes Robert E lee at beginning. Duty is the sublimest word in our language...
